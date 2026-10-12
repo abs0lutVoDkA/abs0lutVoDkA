@@ -1,5 +1,4 @@
-![Profile view counter on Github] (https://saint-cal.com/ghpvc)
-
+![](https://saint-cal.com/ghpvc/?username=saint-cal)
 <!--
 **saint-cal/saint-cal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
