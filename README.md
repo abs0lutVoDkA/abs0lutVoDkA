@@ -6,7 +6,7 @@ BOW DOWN BEFORE THE ONE YOU SERVE.
 YOU’RE GOING TO GET WHAT YOU DESERVE.
 <br>
 <p>VoDkA or Dylan</p>
-<p>he, it, ?im, that thing</p>
+<p>he, it, him?, that thing</p>
 <br>
 low to no emp/symp, its not personal.
 schizoidal narcissistic borderline autist
